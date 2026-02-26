@@ -1,1 +1,1 @@
-Estudar, estudar e estudar
+
